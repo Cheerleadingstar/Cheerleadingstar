@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Music,Rythym games,Porter Robinson and Camellia
 - 🌱 I’m currently learning ...programing for funi
 - 💞️ I’m looking to collaborate on ...wiki stuff and learn work
-- 📫 How to reach me ...uhhhh nowhere i dont exist
+- 📫 How to reach me: saavedrajade6@gmail.com
 - 😄 Pronouns: ...any
 - ⚡ Fun fact: ...i currently have a box of 435 paper cranes
 
